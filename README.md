@@ -1,1 +1,5 @@
-# project-1
+PPT: https://onedrive.live.com/personal/2ec5a25185b52a35/_layouts/15/Doc.aspx?sourcedoc=%7Be9a5ecf3-a040-488c-99c2-29ba4f67705f%7D&action=default&redeem=aHR0cHM6Ly8xZHJ2Lm1zL3AvYy8yZWM1YTI1MTg1YjUyYTM1L0VmUHNwZWxBb0l4SW1jSXB1azluY0Y4QmV1NzNnc3g5dXBIUFgxalFDUHlkOVE_ZT0wT1ZOSnc&slrid=00000000-0000-0000-0000-000000000000&originalPath=aHR0cHM6Ly8xZHJ2Lm1zL3AvYy8yZWM1YTI1MTg1YjUyYTM1L0VmUHNwZWxBb0l4SW1jSXB1azluY0Y4QmV1NzNnc3g5dXBIUFgxalFDUHlkOVE_cnRpbWU9bmRWWVdCS0wzVWc&CID=97cd7ee0-94b4-4443-9ac9-fafbd7793176&_SRM=0:G:39&file=Shamim%20-06.pptx
+
+Excel: https://onedrive.live.com/:x:/g/personal/2EC5A25185B52A35/EaRe0V-FzY5IgsQrd-Fm7RYB25xoSJcdqATP0jdN40F1Xg?resid=2EC5A25185B52A35!s5fd15ea4cd85488e82c42b77e166ed16&ithint=file%2Cxlsx&e=1L1pcs&migratedtospo=true&redeem=aHR0cHM6Ly8xZHJ2Lm1zL3gvYy8yZWM1YTI1MTg1YjUyYTM1L0VhUmUwVi1Gelk1SWdzUXJkLUZtN1JZQjI1eG9TSmNkcUFUUDBqZE40MEYxWGc_ZT0xTDFwY3M
+
+Word: https://onedrive.live.com/:w:/g/personal/2EC5A25185B52A35/ESe0Pz0aABZLvMqUaw28mpoBZdlkqRQNC9Gbpj6WRRW3Cg?resid=2EC5A25185B52A35!s3d3fb427001a4b16bcca946b0dbc9a9a&ithint=file%2Cdocx&e=sxXnNg&migratedtospo=true&redeem=aHR0cHM6Ly8xZHJ2Lm1zL3cvYy8yZWM1YTI1MTg1YjUyYTM1L0VTZTBQejBhQUJaTHZNcVVhdzI4bXBvQlpkbGtxUlFOQzlHYnBqNldSUlczQ2c_ZT1zeFhuTmc
